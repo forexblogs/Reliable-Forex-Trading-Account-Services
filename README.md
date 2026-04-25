@@ -98,7 +98,7 @@ Remember, there is absolutely no rush. Take your time comparing different broker
 Once you find a platform that feels right, open up that demo account and start practicing. The markets will be there tomorrow, so focus on learning the ropes today. Happy trading, and take it one step at a time!
 <h2>Related HashTags</h2>
 #ForexTrading #ReliableForexTrading #ForexMarket #Investing #CurrencyTrading #TradingAccounts #Finance #ForexStrategy #FXTrading #TradingTips #ForexBroker #FinancialFreedom #SafeTrading #ProfessionalTrading #ForexLife
-<h1><strong>Contact Us</strong></h1>
+<h1><strong>Contact Us for Fund Management</strong></h1>
 <ul>
  	<li>
 <h3><strong>Telegram <span style="color: #ff0000;"><a style="color: #ff0000;" href="https://t.me/Forex_Fund_Manage">@Forex_Fund_Manage</a></span></strong></h3>
